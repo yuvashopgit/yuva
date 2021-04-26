@@ -1,1 +1,0 @@
-# yuvashop.github.io
